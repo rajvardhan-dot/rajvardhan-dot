@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **singhrajvardhan09@gmail.com**
 
-- ⚡ Fun fact **I think I AM Good Coder**
+- ⚡ Fun fact **Life IS so Easy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
